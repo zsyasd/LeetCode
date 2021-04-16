@@ -32,3 +32,6 @@
 ### 100题纪念
 
 ![image](https://user-images.githubusercontent.com/55370336/110231124-b5415100-7f50-11eb-9f6d-2b860a89899e.png)
+
+### 笑死 没班上了
+被炒了
